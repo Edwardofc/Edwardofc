@@ -1,10 +1,8 @@
-## Atro : Lite - Bot - MD ✨🦉
+Edward Oficial ✨🦉
 
 <p align="center">
 <a href="https://github.com/Edwardofc"><img src="https://github.com/Edwardofc.png" width="250" height="250"alt="" width="900"/>
 </p> 
-
-Me Llamo Edwardofc
 <br>
 Me apaciona en todo 🫣
 <br>
